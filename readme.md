@@ -32,7 +32,7 @@ Hola, soy **Bryan Key**, un desarrollador apasionado con más de 6 años de expe
 
 Si tienes dudas, comentarios o quieres colaborar, no dudes en contactarme:
 
-- **LinkedIn**: [linkedin.com/in/bryankey](https://linkedin.com/in/bryankey)
+- **LinkedIn**: [linkedin.com/in/bryankey](https://linkedin.com/in/bryansank)
 
 ---
 
